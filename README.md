@@ -2,7 +2,7 @@
 - 👀 I’m interested in Cloud Support and Data Analytics.
 - 🌱 I’m currently learning and working on projects.
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me: cutejeel8100@gmail.com
+- 📫 How to reach me: pateljeel8100@gmail.com
 - 😄 Pronouns:  He/Him/His
 - ⚡ Fun fact: I enjoy my work.
 
